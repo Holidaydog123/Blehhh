@@ -15,7 +15,7 @@
 
 ˖◛⁺⑅♡Lᵒᵛᵉᵧₒᵤ♡⑅⁺◛˖
 
-༺♥༻❀ 𝙁𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 ❀༺♥༻ WC; Mapleshade, Squilf, Hawkfrost ✿⁭ Studio Investigrave; Winnie, Boksu, Myeong-Hoon, Nahun, Protag, Forcas, Rody ✿ JJK; Megumi, Yuta, Ijichi, Nanami, Kenjaku, Mahito, Sukuna ✿ HSR; Boothill, Aventurine, Dan-Heng ✿ Ask for more!! ᵔᴗᵔ
+༺♥༻❀ 𝙁𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 ❀༺♥༻ WC; Mapleshade, Squilf, Hawkfrost ✿⁭ Studio Investigrave; Winnie, Boksu, Myeong-Hoon, Nahun, Protag, Forcas, Rody, Ryan ✿ JJK; Megumi, Yuta, Ijichi, Nanami, Kenjaku, Mahito, Sukuna ✿ HSR; Boothill, Aventurine, Dan-Heng ✿ Ask for more!! ᵔᴗᵔ
 
 ˚ ༘♡ ⋆｡˚ I really like my interests and favorite characters, sorry if I talk about them alot!! ˚ ༘♡ ⋆｡˚
 
